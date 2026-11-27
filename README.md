@@ -1,0 +1,1 @@
+# stolypin-book-covers
